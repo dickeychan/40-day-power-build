@@ -1,25 +1,103 @@
-你希望 40 天後成為什麼樣的「性格」？
+1️⃣ Philosophy – Aristotle
+Core Idea
 
-哪三個行為可以每天刻意練習？
+Virtue is not knowledge.
+Virtue is a trained habit.
 
-AI 沒有目的。
-人有 telos（終極目標）。
+We do not become good by knowing what is good.
+We become good by repeatedly doing good actions.
 
-亞里士多德認為：
+“We become just by doing just acts.”
 
-人的終極目標是「eudaimonia」
-（活出卓越、完整的人生）
+Golden Mean (中庸之道)
 
-問題給你：
+Every virtue lies between two extremes.
 
-AI 會優化準確率。
-你在優化什麼？
+Example:
 
-## Character I am building
+Courage = not recklessness, not cowardice
 
-I want to become a person who ______.
+Integrity = not naive, not manipulative
 
-Daily habits to reinforce this:
-1.
-2.
-3.
+Virtue requires balance guided by reason.
+
+Personal Reflection
+
+I want to become a person who is:
+
+Wise (able to judge under uncertainty)
+
+Decisive
+
+Reliable
+
+Persistent
+
+I understand now that these are not traits I “have” —
+they are traits I must repeatedly practice.
+
+2️⃣ Telos (終極目標)
+
+Aristotle believed humans have a telos:
+Eudaimonia — living a fulfilled and excellent life.
+
+AI optimizes for accuracy.
+
+I am optimizing for:
+
+Leadership ability
+
+Work capability
+
+Mental strength
+
+Character development
+
+AI has no purpose.
+I do.
+
+3️⃣ Habits I Will Train Daily
+
+Character is formed by repetition.
+
+Daily reinforcement:
+
+Fixed gym sessions (discipline of body)
+
+1 hour no-phone deep focus (discipline of mind)
+
+Before sending important emails, ask:
+→ “Does this push the matter forward?”
+
+Intentionally help one colleague progress (without seeking credit)
+
+These habits shape reliability and integrity.
+
+4️⃣ Leadership Insight
+
+Integrity is long-term leverage.
+
+Principles must remain stable.
+Strategies can evolve.
+
+True leadership:
+
+Explains the WHY
+
+Builds systems that protect values
+
+Allows others to grow
+
+I aim to become:
+
+A leader who sees clearly, decides calmly, and stands firmly.
+
+And ultimately:
+
+A person whose growth multiplies the growth of others.
+
+5️⃣ Key Realization of Today
+
+Character is not a decision.
+It is a pattern.
+
